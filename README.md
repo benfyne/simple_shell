@@ -1,0 +1,2 @@
+no partner
+omo
